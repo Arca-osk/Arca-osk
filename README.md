@@ -4,7 +4,7 @@ Socials:
 
 Twitter: https://twitter.com/ArcaBrescia
 
-Discord: Arca#620
+Discord: Arca#6820
 
 Youtube: https://www.youtube.com/channel/UCscBe9U68l0mX1In7uwE0yQ
 
